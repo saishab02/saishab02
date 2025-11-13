@@ -8,7 +8,7 @@
 - 📫 How to reach me: ...Google "Saishab Sarkar"
 - 😄 Pronouns: ... He/him
 - ⚡ Fun fact: ...I like Business
-  About me-
+- About me:
  Hi,This is Saishab Sarkar. I am a quick learner and a hub of versatile creativity, fueled by relentless energy. While I am a good student of Computer Science Engineering in the material world, my true self exists in my imagination as a passionate entrepreneur and a Billionaire.
 
 
